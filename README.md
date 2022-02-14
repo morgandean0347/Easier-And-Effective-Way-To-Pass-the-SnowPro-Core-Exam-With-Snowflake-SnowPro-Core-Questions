@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-SnowPro-Core-Exam-With-Snowflake-SnowPro-Core-Questions
